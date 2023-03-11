@@ -5,3 +5,9 @@ O <strong> PawWalks </strong> (PatasPasseiam) é um meio divertido e prático qu
 Sabemos que passear com o cachorro é uma atividade importante para a saúde e bem-estar dos pets, e é por isso que oferecemos um serviço de alta qualidade e personalizado, para atender às necessidades específicas de cada cachorro e de seus donos.
 
 Com o PawWalks, os donos podem relaxar sabendo que seus cachorros estão em boas mãos, sendo cuidados e passeando com segurança. E os cachorros, por sua vez, podem desfrutar de um passeio divertido e interativo, com outros cachorros e um passeador animado e experiente. Junte-se ao PawWalks e ofereça ao seu cachorro o melhor passeio da cidade!
+
+
+<br/>
+
+
+" <strong> Deixe seu cachorro feliz, deixe o PawWalks cuidar dos passeios </strong> "
