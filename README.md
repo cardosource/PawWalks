@@ -1,6 +1,6 @@
 # PawWalks
 
-O <strong> PawWalks </strong> (PatasPasseiam) é um meio divertido e prático que conecta donos de cachorros a passeadores profissionais e experientes. O nosso objetivo é proporcionar aos cachorros um passeio seguro e divertido, enquanto seus donos estão ocupados com outras atividades.
+O <strong> PawWalks </strong> (PatasPasseiam) é um meio divertido e prático que conecta donos de cachorros a pessoas confiaveis e experientes. O nosso objetivo é proporcionar aos cachorros um passeio seguro e divertido, enquanto seus donos estão ocupados com outras atividades.
 
 Sabemos que passear com o cachorro é uma atividade importante para a saúde e bem-estar dos pets, e é por isso que oferecemos um serviço de alta qualidade e personalizado, para atender às necessidades específicas de cada cachorro e de seus donos.
 
